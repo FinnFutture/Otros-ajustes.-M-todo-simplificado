@@ -1,0 +1,1 @@
+# Otros-ajustes.-M-todo-simplificado
